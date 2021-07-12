@@ -1,0 +1,1 @@
+# roblox-funky-friday-script-free-auto-play-and-others
